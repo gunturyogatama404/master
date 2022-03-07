@@ -9,6 +9,7 @@
 7. Run Bot and Enjoyed
 
 
+
 # Register Anti-Captha
 http://getcaptchasolution.com/qlww3kn8dy
 or
